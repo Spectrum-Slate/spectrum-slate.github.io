@@ -1,1 +1,0 @@
-# spectrum-slate.github.io
